@@ -8,3 +8,6 @@ If Yunior choose to extend OBD2Tesla with new features that require logging, met
 Yunior, reserves the right to update this privacy policy at any time.
 
 ©2022-2023 Yunior
+
+For help email us:
+yyunior1@aol.com
